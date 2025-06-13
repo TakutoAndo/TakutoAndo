@@ -5,6 +5,7 @@
 #### Web Application Engineer
  
 2022/03 - 電気通信大学 情報理工学域一類 卒業
+
 2022/04 - チームラボ株式会社 入社
 
 ## 💫 Skill & Interest in
