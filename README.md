@@ -8,6 +8,8 @@
 
 2022/04 - チームラボ株式会社 入社
 
+2026/04 - 株式会社SmartHR 入社
+
 ## 💫 Skill & Interest in
 
 #### Languages & Frameworks
